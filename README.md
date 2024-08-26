@@ -10,4 +10,4 @@ Meu nome é Marcelo Paludetto
 
 @00001114048574sp@al.educacao.sp.gov.br
 
-![descrição do GIF](https://tenor.com/pt-BR/view/kevin-bueno-kevin-os-4m-4m-kevin-mc-gif-3906393271734634648)
+![descrição do GIF](https://media1.tenor.com/m/NjZL-9K4CJgAAAAC/kevin-bueno-kevin.gif)
